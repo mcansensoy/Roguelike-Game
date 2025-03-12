@@ -1,4 +1,4 @@
-Trailer for the idea-development phase of the game I've been working on developing for a short time:
+Teaser for the development phase of the game I've been working on developing for a short time during my internship:
 https://youtu.be/BriGa9D0j8Q
 
 OVERVIEW
